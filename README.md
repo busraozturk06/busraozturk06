@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @busraozturk06
+- 👀 I’m interested in media, dance and astrology.
+- 🌱 I’m currently learning SEO.
+- 😄 Pronouns: she / her
